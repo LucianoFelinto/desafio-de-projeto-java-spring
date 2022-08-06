@@ -14,7 +14,7 @@ Neste trabalho tive muita dificuldade.
 Pois devido ao meu trabalho e tempo não estava favoravel para mim.
 Para ter melhora no entendimento, teria que tirar mais tempo para estudos e treinamentos.
 Muitos erros apareceram e não tive sucesso para corrigir.
-Agradeço a DIO, para mais uma coquista.
+Agradeço a DIO, para mais uma conquista.
 Fica então a minha gratidão também a bolsa de estudo do Santander.
 
 
